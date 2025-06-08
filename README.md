@@ -17,7 +17,7 @@ osdd + bpd ೀ Nrt fans int!
 
 ౿ ָ WARNING
 
-some alters are very prejudice / jealous of doubles but dont be scared to int trust
+some alters are very prejudice / jealous of doubles but dont be scared to int trust they arent out too often
 
 WHISPER TO INTERACT WITH ME BECAUSE IM OFF TAB ALOT!!
 
