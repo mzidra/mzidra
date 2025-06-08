@@ -21,6 +21,8 @@ some alters are very prejudice / jealous of doubles but dont be scared to int tr
 
 WHISPER TO INTERACT WITH ME BECAUSE IM OFF TAB ALOT!!
 
+c + h is okay ig hhh
+
      ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
 ౿ ָ Not much of a dni criteria i hide / block freely BUT
@@ -90,6 +92,8 @@ dnd
 fnf .. 
 
 dmc 
+
+hazbin hotel / helluva boss ((NO EXCEPTION.
 
 IF YOU LIKE ANY OF THESE THATS OK OK I WONT HARASS ANYONE AND IF YOU'RE COOL WE CAN STILL BE FRIENDS!!
 
