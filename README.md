@@ -15,13 +15,13 @@ osdd + bpd ೀ Nrt fans int!
 
 ❥ add to be friends!
 
-౿ ָ WARNING
+     ౿ ָ WARNING
 
 some alters are very prejudice / jealous of doubles but dont be scared to int trust they arent out too often
 
 WHISPER TO INTERACT WITH ME BECAUSE IM OFF TAB ALOT!!
 
-︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
+     ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
 ౿ ָ Not much of a dni criteria i hide / block freely BUT
 
@@ -92,3 +92,11 @@ fnf ..
 dmc 
 
 IF YOU LIKE ANY OF THESE THATS OK OK I WONT HARASS ANYONE AND IF YOU'RE COOL WE CAN STILL BE FRIENDS!!
+
+this could all just be really biased and im just a big hater ??? dont not int ok
+
+                              𞥊 ︶︶ misc
+  
+at the moment my cardd is UNFINISHED but it may become my art gallery, mainly for wips and skethes and works im proud of
+
+            𞥊 ︶︶  im hoping to do commissions soon! 
