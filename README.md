@@ -15,6 +15,9 @@ osdd + bpd ೀ Nrt fans int!
 
 ❥ add to be friends!
 
+    IM NICE I PROMISE DONT LET ANY OF THIS DISCOURAGE YOU I NEED FRIENDS 
+
+
      ౿ ָ WARNING
 
 some alters are very prejudice / jealous of doubles but dont be scared to int trust they arent out too often
