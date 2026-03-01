@@ -2,12 +2,10 @@
 
 . Ꮺ w2i! ๋࣭ ⭑ im mizi i think 
 
-osdd + bpd ೀ Nrt fans int!
+osdd + ? ೀ Nrt fans int!
 
       ౿ ָ byi  
-❥ skin may = whatever alter / personality is at front but not always
-
-❥ whoevers at front will reveal themselves based on the person asking but they usually dont!!
+❥ skin may = whatever personality is at front but not always
 
 ❥ anyone under the age of 16 is limited to talking on pt only , no socials given 👅
 
@@ -19,8 +17,6 @@ osdd + bpd ೀ Nrt fans int!
 
 
      ౿ ָ WARNING
-
-some alters are very prejudice / jealous of doubles but dont be scared to int trust they arent out too often
 
 WHISPER TO INTERACT WITH ME BECAUSE IM OFF TAB ALOT!!
 
@@ -56,6 +52,12 @@ FANDOMS -  ☆ = i enjoy this alot (hyperfixation)
 
 ☆ yu yu hakusho
 
+☆ TDAC
+
+
+
+
+
 
     ୨♡୧ ︶
 
@@ -73,6 +75,7 @@ FANDOMS -  ☆ = i enjoy this alot (hyperfixation)
 
 ⟡ toradora 
 
+⟡ tshd
 i cant think of anythign else hi
 
       ౿ ָ 🎀 𞥊 ︶︶
