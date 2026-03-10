@@ -2,7 +2,7 @@
 
 . Ꮺ w2i! ๋࣭ ⭑ im mizi i think 
 
-osdd + ? ೀ Nrt fans int!
+hi  ? ೀ Nrt fans / interest moots int! 
 
       ౿ ָ byi  
 ❥ skin may = whatever personality is at front but not always
@@ -34,7 +34,7 @@ sharing ng be gone...
 
 
      ౿ ָ  MORE ABOUT ME!
-i am 17 ! , ♀  she/her or they it depends!! 
+i am 18 ! stuck on safe  she/her orrrrrrr ummm :3333
 
 artist and a writer (writer in progress) 
 
@@ -42,7 +42,7 @@ i interact when i feel like it but dont run away form me pelase
 
 no 1 isolationist i will accidentally ghost you 
 
-FANDOMS -  ☆ = i enjoy this alot (hyperfixation) 
+FANDOMS (outdated) -  ☆ = i enjoy this alot (hyperfixation) 
 
 ⟡ = i enjoy this!!
 
@@ -80,7 +80,7 @@ i cant think of anythign else hi
 
       ౿ ָ 🎀 𞥊 ︶︶
       
-FANDOMS I WILL AVOID - this is out of predijuce or dislike for the fans 
+FANDOMS I WILL AVOID (outdated) - this is out of predijuce or dislike for the fans 
 
 
 BNHA
