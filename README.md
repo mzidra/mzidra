@@ -9,7 +9,7 @@
 hi  ? ೀ Nrt fans / interest moots int! 
 
       
- ౿ ָ me ->    <img     src="https://i.pinimg.com/736x/c0/ca/47/c0ca47b3ac86c019ec1afac40d4ff380.jpg" width="15%">
+ ౿ ָ its me hi
 
 ❥ Im literlaly deiaralightyagami irl
 
