@@ -25,7 +25,7 @@ artist and a writer
   ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
  ︶ᵈᵒʸᵒᵘ︶ˡⁱᵏᵉ︶ᵗʰᵉ ˢᵗᵃʳˢ?⊹ᵗʰᵉʸ ʳᵉᵐⁱⁿᵈᵐᵉ ︶ ᵒᶠ ︶ ᵇᵒᵐᵇˢ!︶︶ ⊹ ︶︶︶
-<img  src="https://media.discordapp.net/attachments/1117899333690458182/1492716623260549251/image.png?ex=69dc5830&is=69db06b0&hm=b5ec3517cc91c2764fd924f913034f04d1f47834082acc9977384e2b959a9bae&=&format=webp&quality=lossless&width=755&height=567" width="40%">
+<img  src="https://media.discordapp.net/attachments/1117899333690458182/1492716623260549251/image.png?ex=69dc5830&is=69db06b0&hm=b5ec3517cc91c2764fd924f913034f04d1f47834082acc9977384e2b959a9bae&=&format=webp&quality=lossless&width=755&height=567" width="30%">
 
 
 
