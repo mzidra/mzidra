@@ -6,7 +6,7 @@
 <img     src="https://i.pinimg.com/736x/bd/72/58/bd7258c9adfc29be5d0c675245d3ad85.jpg" width="30%">
 . Ꮺ w2i! ๋࣭ ⭑ im mizi i think im off tab alot
 
-hi  ? ೀ Nrt fans / interest moots int! 
+hi  ? ೀ Nrt fans / interest moots int! C+H
 
 WARNING. I CAN ALWAYS TELL WHEN SOMEONE HAS COPIED COMPONENTS OF MY SKINS. 
       
