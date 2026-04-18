@@ -8,6 +8,7 @@
 
 hi  ? ೀ Nrt fans / interest moots int! 
 
+WARNING. I CAN ALWAYS TELL WHEN SOMEONE HAS COPIED COMPONENTS OF MY SKINS. 
       
  ౿ ָ its me hi
 
