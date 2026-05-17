@@ -8,7 +8,7 @@
 
 hi  ? ೀ Nrt fans / interest moots int! C+H
 
-WARNING. I CAN ALWAYS TELL WHEN SOMEONE HAS COPIED COMPONENTS OF MY SKINS. 
+burger with peantbutter and bacon on it.
       
  ౿ ָ its me hi
 
