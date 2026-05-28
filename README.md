@@ -18,7 +18,7 @@ burger with peantbutter and bacon on it.
 
 ❥  light rp is okay!!
 
-❥ ౿ ָi am 18 ! stuck on safe  she/her orrrrrrr ummm :3333
+❥ ౿ ָi am 18 ! stuck on safe  anyprns :3333
 
 artist and a writer 
 
